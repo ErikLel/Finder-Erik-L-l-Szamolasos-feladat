@@ -1,0 +1,1 @@
+# Finder-Erik-L-l-Szamolasos-feladat
